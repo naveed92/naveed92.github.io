@@ -1,2 +1,2 @@
-Moved to [www.naveedafzal.com](www.naveedafzal.com)
+Moved to [www.naveedafzal.com](https://www.naveedafzal.com)
 
